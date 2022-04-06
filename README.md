@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @scratch-passive
+- I’m interested in applying what I've learned in code
+- I’m currently learning more about object oriented programming!
+- I’m looking to collaborate on anything that I can simultaneously contribute to and increase my knowledge
+- How to reach me? Through this channel or discord.
