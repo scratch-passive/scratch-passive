@@ -2,4 +2,4 @@
 - I’m interested in applying what I've learned in code
 - I’m currently learning more about databases!
 - I’m looking to collaborate on anything that I can simultaneously contribute to and increase my knowledge
-- How to reach me? Through this channel or discord.
+- How to reach me? Find my [Linkedin](https://www.linkedin.com/in/mckenzyison/) or through Discord (username: zygadena)
